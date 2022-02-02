@@ -1,1 +1,1 @@
-# 7mensamurai.github.io
+# 武士合宿七天乐 | 更新至第一天
